@@ -6,4 +6,5 @@ untuk siapa pun yang mau ikut berpartisipasi dalam ini bisa ikut untuk bantu say
 
 
 akun media sosial saya https://www.youtube.com/@XSLTY
-silahkan kunjungi dan komen untuk ikut menjadi konstributor 
+silahkan kunjungi dan komen untuk ikut menjadi konstributor
+                                                                                            terimakasih
